@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Maaksaa.github.io/rsschool-cv/cv
